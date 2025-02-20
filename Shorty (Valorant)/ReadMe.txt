@@ -1,0 +1,1 @@
+Non-functional, full size Shorty shotgun from Valorant. Hinges with an m.3 bolt, and latches and breaks with moderate force at top near thumb position. Detailed with Snakebite weapon skin, single color.
